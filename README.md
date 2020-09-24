@@ -1,2 +1,2 @@
 # naughtypines.github.io
-Luxury Private Camping and Guest Lodging in The Maine Wildnerness
+Luxury Private Camping and Guest Lodging in the Maine Wildnerness
